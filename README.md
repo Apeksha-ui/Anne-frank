@@ -1,7 +1,7 @@
 # Anne-frank
 a girl who was tortured during Nazi period.
 <br>she loved peter.
-she loved to write her emotion so that she could expell out of her chest
+<br>she loved to write her emotion so that she could expell out of her chest
 
 
 
